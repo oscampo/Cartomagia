@@ -3,21 +3,37 @@ Mi Repositorio de Trucos y Técnicas basados en el curso MAgo 2.0 de Julio Riber
 
 1. BIENVENID@
 2. EL GRAN SECRETO DE LA MAGIA
+
 Introducción al Double Lift
+
 [-Easy](https://www.youtube.com/watch?v=Gjd4EDm3EWU)
+
 [-Varias técnicas](https://www.youtube.com/watch?v=1-6Niz-VxUY)
+
 Break por rifleo
+
 Break por empuje
+
 Break por pinky count
+
 Volteo clásico por arrastre
+
 Volteo por deslizamiento
+
 Volteo por empuje
+
 Volteo por giro deslizante
+
 Volteo por giro con floritura
+
 Retomar break por detrás
+
 Retomar break por delante
+
 Center Double Lift
+
 Combo básico
+
 Combo perfecto
 
 3. TRUCOS IMPROMPTU
