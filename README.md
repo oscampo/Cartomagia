@@ -1,8 +1,8 @@
 # Cartomagia
 Mi Repositorio de Trucos y Técnicas basados en el curso MAgo 2.0 de Julio Ribera
 
-01 BIENVENID@
-02 EL GRAN SECRETO DE LA MAGIA
+1. BIENVENID@
+2. EL GRAN SECRETO DE LA MAGIA
 Introducción al Double Lift
 [-Easy](https://www.youtube.com/watch?v=Gjd4EDm3EWU)
 [-Varias técnicas](https://www.youtube.com/watch?v=1-6Niz-VxUY)
@@ -20,7 +20,7 @@ Center Double Lift
 Combo básico
 Combo perfecto
 
-03 TRUCOS IMPROMPTU
+3. TRUCOS IMPROMPTU
 EFECTO: Rutina ambiciosa
 TUTORIAL: Rutina ambiciosa
 EFECTO: Two card monte
@@ -36,7 +36,7 @@ TUTORIAL: Carta a través de la ventana
 EFECTO: Carta a la boca
 TUTORIAL: Carta a la boca
 
-04  TRUCOS CON PREPARACIÓN
+4.  TRUCOS CON PREPARACIÓN
 EFECTO: Rising card
 TUTORIAL: Rising card
 EFECTO: Transposición clásica
@@ -53,7 +53,7 @@ TUTORIAL: Baraja invisible + marcada
 EFECTO: Mental Photography
 TUTORIAL: Mental Photography
 
-05 TÉCNICAS
+5. TÉCNICAS
 Dribleo
 Abanico a presión
 El empalme
@@ -64,33 +64,33 @@ Half pass
 Half pass 2.0
 Mercury fold
 
-06 MEZCLAS
+6. MEZCLAS
 Mezcla en mano falsa
 Mezcla por rifleo
 Mezcla por rifleo falsa 1
 Mezcla por rifleo falsa 2
 Mezcla Faro
 
-07 FORZAJES
+7. FORZAJES
 Forzaje con el As de Picas
 Forzaje por dribleo
 Forzaje clásico
 Forzaje psicológico
 
-08 CONTROLES
+8. CONTROLES
 El potencial de la mezcla en mano
 DMB spread control
 Cull                        
 Cull múltiple
 
-09 CAMBIOS DE COLOR
+9. CAMBIOS DE COLOR
 Cardini color change
 Snap color change
 Snap color change 2.0
 Blow color change
 Houdini color change
 
-10 TEORÍA                                
+10. TEORÍA                                
 Misdirection en profundidad                                
 Cómo crear tus propios trucos                            
 Cómo estructurar rutinas                                
