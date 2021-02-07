@@ -60,6 +60,8 @@ Mi Repositorio de Trucos y Técnicas
 [Varios videos Sands Mind](https://mega.nz/folder/TIskmQKI#lmbdaoP_Itkfk-ttL4HiYw)
 
 [Sky Vanish](https://drive.google.com/drive/folders/1PUyo2qTDGE1tugc8ri4dLOJgkTO45Ihc)
+
+[El Ninja de la Magia Completo](https://mega.nz/folder/cBwBWJgK#b7oE06ThRdyGID3tl5uFHw)
 <!--1. BIENVENID@
 2. EL GRAN SECRETO DE LA MAGIA
 
