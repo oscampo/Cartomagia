@@ -62,6 +62,9 @@ Mi Repositorio de Trucos y Técnicas
 [Sky Vanish](https://drive.google.com/drive/folders/1PUyo2qTDGE1tugc8ri4dLOJgkTO45Ihc)
 
 [El Ninja de la Magia Completo](https://mega.nz/folder/cBwBWJgK#b7oE06ThRdyGID3tl5uFHw)
+
+# Cardistry
+[Genesis V2 - 15 videos](https://drive.google.com/drive/folders/1_Se5QuGGgfIef6BXOMWwFELuh9eGCq09)
 <!--1. BIENVENID@
 2. EL GRAN SECRETO DE LA MAGIA
 
