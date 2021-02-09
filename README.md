@@ -1,7 +1,11 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 
- [Adrian Lacroix - Passcode](https://mega.nz/file/Q9BzCQZI#xAqcjLU3yBQtu1UW7BK8bGMZNsfkjZhGAhjLUT_0iLc)
+[Recorner by Julio Montoro](https://mega.nz/file/bxZFiCBB#IThNLrCVZ5-uo_adxlnYBnhocDMjKR9yjrHpavjUPU4)
+
+[The Vault - WING by Ade Rahmat](https://mega.nz/file/u0YQBDqQ#4cFFrehIP6VXM2pdc5bedcrYMnNfc_FntlXl2oKNs5s)
+
+[Adrian Lacroix - Passcode](https://mega.nz/file/Q9BzCQZI#xAqcjLU3yBQtu1UW7BK8bGMZNsfkjZhGAhjLUT_0iLc)
 
 [8nimation Las pintas de la carta se mueven](https://mega.nz/file/QEszyApS#b_8SBABdprMqkx90dMBlwjaD_-wdSbpcGso91EemLTU)
 
