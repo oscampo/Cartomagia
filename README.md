@@ -63,6 +63,26 @@ Mi Repositorio de Trucos y Técnicas
 
 [El Ninja de la Magia Completo](https://mega.nz/folder/cBwBWJgK#b7oE06ThRdyGID3tl5uFHw)
 
+[Continuum by Jason Knowles](https://mega.nz/file/WwgyGACZ#OpOV36D7Bw4uHLaBWzc4DoNLx22L8PZqYNBuq63XKUo)
+
+[carta condón](https://mega.nz/file/iCwQ0LSL#_X1FQT96lirGx6hWej47EE4EpOKzvGW5zC3W5Qey5OM)
+
+[VOICES by Jeff Prace](https://drive.google.com/file/d/1Gvq6kLHNGEgFgbeq75uebc7kgYEnV9Eu/view)
+
+[CUBE 3 Steven Brundage](https://mega.nz/file/r4wjkBiR#GWZ6zWY6Ud5D0mS0-TP3Jya5-m6waJo-lMIDlwlWENk)
+
+[CUBE 3 Steven Brundage Part 2 Routines](https://mega.nz/file/rhwlzDrR#TDLDAuoNxabIsu0C2H9VO9XXoObUvxieDfkMj7TvvyA)
+
+[Cube3_Solutions_Cheat_Sheet .pdf](https://mega.nz/file/ntoxlDKT#AHX2OixuYOyL6-fDDLVFCnbRPl5EIX-Y3h9Bo2XCIZE)
+
+[We Can Do it by Han Seol-Hui](https://mega.nz/file/n8hXwADI#kFHydxQ0ASzzAq3SoMUze2tY4YRhHH_-pMAbtyu-jMs)
+
+[Ponta the Smith - Sick](https://mega.nz/file/QzYgRBgT#nTGmxjr4a2jpqPJyLVEQ48ETc6iZLIyEGHXn4fj1LLY)
+
+[Tembus by Robert Bertrance](https://drive.google.com/file/d/1axJGeFhaZkEBxjFgw9ongQjritz_UZad/view)
+
+
+
 # Cardistry
 [Genesis V2 - 15 videos](https://drive.google.com/drive/folders/1_Se5QuGGgfIef6BXOMWwFELuh9eGCq09)
 <!--1. BIENVENID@
