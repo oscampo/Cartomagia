@@ -1,6 +1,8 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 
+[Extreme Burn 2.0](https://drive.google.com/drive/folders/1zLPIR6pjdvjhEy5QfO8ZLKAxd_0ybsmK)
+
 [Recorner by Julio Montoro](https://mega.nz/file/bxZFiCBB#IThNLrCVZ5-uo_adxlnYBnhocDMjKR9yjrHpavjUPU4)
 
 [The Vault - WING by Ade Rahmat](https://mega.nz/file/u0YQBDqQ#4cFFrehIP6VXM2pdc5bedcrYMnNfc_FntlXl2oKNs5s)
