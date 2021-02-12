@@ -1,6 +1,8 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 
+[Shadow Splitter by Hui Zheng presented](https://mega.nz/file/OwoXSY6Q#djf58FmFzJo6RbDLX46JdQG8sPDvuDWOggvJUryLqdg)
+
 [Revamp by nicholas lawrence](https://mega.nz/file/ekQHxCBC#rd3exQZJElvX2IqOwI2m7705X5M7Eue1gK6TsQhu2eU)
 
 [Extreme Burn 2.0](https://drive.google.com/drive/folders/1zLPIR6pjdvjhEy5QfO8ZLKAxd_0ybsmK)
