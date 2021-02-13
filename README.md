@@ -1,6 +1,108 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 
+
+
+[The Magic Crasher David Bonfadini](https://mega.nz/file/LlwkxJqa#qgO59dMAOEi5ekhhxX_Wql90JlPVetiUZqJF29-n4RM)
+
+[Cambio de Ropa, Infantil, Tumbtipedia](https://mega.nz/folder/idkjmZYJ#tVgekn0E3yt24c20EHLXpg)
+
+[Odyssey by Rodrigo Romano](https://mega.nz/folder/qp82iIZL#RFlF9yM-B48peQtZ2ubatw)
+
+[Incomparable by Finn Jon](https://drive.google.com/file/d/1GWAD7P-Gvy_kcMk1nsWVxK95MgLUvJru/view?fbclid=IwAR3SRr_3HD-AH8gVbQRyqBHSEjeALPBUOb2CQ2vwasLvojViasKhgR39rXw)
+
+[Penguin Live Lecture - John Bannon](https://drive.google.com/file/d/1HTuaV0N3etBbvw4Ityp2onb_pjeOhU_m/view?fbclid=IwAR1WadNxC1VWJ853zlTiXlMeDzEXOkiDI8BUEAu6a6ryg6iQeAuNiOUdoQk%5D(https://drive.google.com/file/d/1HTuaV0N3etBbvw4Ityp2onb_pjeOhU_m/view?fbclid%3DIwAR1WadNxC1VWJ853zlTiXlMeDzEXOkiDI8BUEAu6a6ryg6iQeAuNiOUdoQk))
+
+[Varios Dani DaOrtiz](https://mega.nz/folder/IkYhwChS#kR5u1phI64CmGBmQbxAhEw)
+
+[Automatic by Alex Hansford](https://drive.google.com/file/d/1V-CfT1r1yVW-57uhx8WZ8zR2-lILj72_/view?fbclid=IwAR15PmIjthBrfrE9tqS8jXgt0mNJHdQ1RPn5ab_UtI06nV9d2AhvJxKirN8)
+
+[Revolve by Nicholas Lawrence](https://mega.nz/file/HoJw1BoR#sCVi3PECSX6LiAncJCkenGcigwg5miZxzcMlo_TyZ44)
+
+[EVOLVE by Nicholas Lawrence](https://mega.nz/file/b9IwTBYL#2lLgHMQQFCtIqNG89e8oSQbUmePL-gS73KC3-zXUaEY)
+
+[The End of My Rope by Chris Philpott](https://drive.google.com/file/d/16MsTM7Yc-x3AkcFVtIjtDQ3urIM1kI0d/view)
+
+[Hover card Plus](https://mega.nz/file/SsxV3CzB#j_XM0w3qA78CKPiA0qaVC-50fFrrLqvp3lKoC9GE78Q)
+
+[Skulkor - iTattoo](https://mega.nz/file/tBg12bwL#TmnRCMqHq6j68DhJcomDjBZ-A3HAnaaPrT1pAD3yJOc)
+
+[David stone. Real secrets of magic  vol 1](https://drive.google.com/file/d/1bviBMNLLNs_IgrdJKPKlU7FlY3w6n28O/view?usp=drivesdk)
+
+[Luis Otero](https://drive.google.com/file/d/1OaFbyyz8utCcTwgKpt77RbZbDYiQ572t/view)
+
+[Denail by Eric Ross](https://mega.nz/file/brJgECza#2oQVOxOOyVXuUkaJ4CnscFF4MEYvct1dYIsABNFL3Wk)
+
+[Acidus Novus by Millard Longman](https://mega.nz/file/e5g21Y6Y#YtH1KWRdTAg3g-_5kfpbBslK0wuoZJhDElttg_VG0Ow)
+
+[Varios Monedas, Lapiceros, objetos](https://mega.nz/folder/cohxyCqY#WpYXmE8m80vkTfsRpEAm4A)
+
+[Tic Tacs](https://mega.nz/folder/EttB0aCK#2ffS6RUW3XcV7deQkfN58Q)
+
+[DANIEL GARCIA SYMPHONY](https://mega.nz/file/0CY0TDhQ#j9qmxfjoqZvokAZrncWWS0OcFhQGkE_f8nb3-Lph0tQ)
+
+[m1](https://mega.nz/file/QEUSHIAJ#VZ3uOWg752bqv9qMPS3kMNz-Cy7B3iG2hJl-pimK0sM)
+
+[Varios Sansmind](https://mega.nz/folder/UU9TRIyD#OHJQ8VEwh5k4U_U9s903tQ)
+
+[Daniel Madison Mechanic V0l 1](https://mega.nz/file/d4AXXYbJ#wu5SeIda7cAS6y8elbarq2zKD_0zET_HcH1xb9I4U8o)
+
+[Libros Colección Tarbell](https://mega.nz/folder/7zIAyKrS#XETunrJJbTMMSNaIASImmQ/folder/zrwHBAjR)
+
+[Token by SansMinds Creative Lab](https://mega.nz/file/oVIBQYSL#cFUrW3Bkw_mFaeSyz_Uy9tYPTqQqBKx4LAORjQW1jZ8)
+
+[Carta al bolsillo](https://mega.nz/file/sd0GWa4C#_ZuEWIORO8XongZ_1l8UCt68WsQoZY2MAF_k3Sg2CGI)
+
+[The Hook by Eric Ross](https://mega.nz/file/PG4WTJTA#sLcxKzjz6pO4v0po_r1tr-sdWqFVqO8DFu1HLMpt1X0)
+
+[Magia de Miquel Roman](https://mega.nz/folder/NA5WnSiA#Xba6ktVONYLUA_uOtBXf8Q)
+
+[Penguin Live Lecture - Roberto Giobbi](https://mega.nz/file/VAhWnKBb#BCTPvZs9rd4v1BWdS_jt25JjxelaFrELkgnlC1uh8Oc)
+
+[Libro Eddie Joseph's premonition](https://mega.nz/file/IQBmGSBa#at-5aQvAr7EB7KlMucOup2tuUFnU0eB6P05U1_MgIns)
+
+[alex Geiser - The Prodigy ](https://mega.nz/file/AepgESbQ#wV1vGg1rI0bljStWOFo_HbWMW5lU5YxBOdrBnpLwOq0)
+
+[God's Creation](https://mega.nz/folder/73YDgahA#Ps_7d6utG7G-6qGwMKE5zQ)
+
+[Varios: Ernesto Melero, Esponjas, Cuerdas, Cubiletes, Dani Orleans](https://mega.nz/folder/sOQ1GapD#2TnmkYrSJijQE-dviDSQaw/folder/xLpE0Kab)
+
+[CICARDI PROYECT 1](https://mega.nz/file/0gcG0QjI#ySdqOxTGarDwMlvQZw4v3zg2Mwih23uvKzBvmAjuyFY)
+
+[Combustion by Arron Jones and World Magic Shop](https://drive.google.com/file/d/1v06fWuRqf3iZf8_PXYtPOLedIlngMu05/view)
+
+[Revelaciones Imposibles by Max Maven](https://drive.google.com/file/d/16m2kFsUR6BRNXaQDnAkpwg7J1KBoTS8w/view)
+
+[QR Code by Mickael Chatelain](https://drive.google.com/file/d/1NUPwMKCXcCFR71dTPe9niipYv3ca1e3A/view)
+
+[The Cooler by Christian Engblom](https://drive.google.com/file/d/1qVSP9ZiAjm-yvirVwals9bGYk8oGr7QN/view)
+
+[Multiplicity by Max Maven](https://drive.google.com/file/d/1cj39IMhCw1SLldOl5NHXiGqAb-RGtL0E/view)
+
+[real secret of magic vol 2](https://drive.google.com/file/d/1Fukz5BOh7RneHMqv76Q8ML2AACOqIKbe/view)
+
+[Parasol, sedas, baston bailarin](https://mega.nz/file/hkJljC7R#Mu1LROpUJXk2nvDFiFxGDgX12Doht8hMKXDWg7AXm_0)
+
+[Garrett_Thomas_-Banded](https://mega.nz/file/stZWkYSD#eaozQdsG2kVvb6ng8yB_hTDn3iJO0m6PwIYyN5OloGk)
+
+[bolsa y huevo](https://mega.nz/folder/KnI3zYRI#DO705x-Ig7dOdqghqsvIvg)
+
+[Michael Ammar Penguin Live Act](https://mega.nz/file/ewZhiAhb#6_PlfnfcyOwku8wFXfY-RerFw42pk0_VLKL3gUrhEbU)
+
+[c10-de-daortiz](https://mega.nz/file/sbAwAIRB#NQdFZ92B8jGW2-J4lP01ottNhFGX7ggc8rwE-0aYKOQ)
+
+[Jibrizy Penguin Live ACT](https://mega.nz/file/H5gyABAL#jR3N5CtFWR1HwkyFpPaMv0Z7-n0Sd9RJvFKoX0l3KZA)
+
+[cartomagia para entendidos Luis Otero](https://mega.nz/folder/GEVyEQYQ#EJL_1DwSA7YlZ89vsEwJWQ)
+
+[Libro el falso pulgar segunda ediccion el gran Henry](https://mega.nz/file/mjJFiarS#k_qRL6H6gD8N-qsV-VMUQs8Ru6KbNdOutFwo8uNHj4A)
+
+[Juan Tamariz - Magic from my heart](https://mega.nz/folder/M4lTSCxL#p6exoKz1Nc7_B8JEkweRFQ)
+
+[Laura London - Card In Bottle]9https://mega.nz/file/Qx5zRSoK#4r2u9iHOqJu_y22OmBvTuDbPKPnbbtSOrwjISF-DNy8)
+
+[Dani DaOrtiz - Utopia Vol. 1-4](https://mega.nz/folder/QiYViSKK#YTY4zviaIjrpycA9cUIvKQ)
+
 [LOPEZ by Mario Lopez GrupoKaps Productions Vol. 1](https://mega.nz/file/m2pCXaCY#EV8d2hgj2hHbnGPMxZWsqV5kgxBn6tSNHWBJIZsAtvQ)
 
 [Mario Lopez - Lunes](https://mega.nz/file/AJFGXLxS#8eSG2WXV8_2b9di4w5Zavh0sMzfmpg15qG50Qzum0mg)
@@ -27,7 +129,7 @@ Mi Repositorio de Trucos y Técnicas
 
 [Rejoined Express by Joao Miranda](https://mega.nz/file/H1QVHQhR#DIN2-749UzlqEPnMOTPvQCo84aYafkmCI7s6HztMU2s)
 
-[Prisoners by Alex Pandrea](https://mega.nz/file/hMQDmaSL#UpX5zgS0ig9iXLZq4QGB_k-rsuNyE3LVTm6pJ9fz4aY)
+[Prisioners by Alex Pandrea](https://mega.nz/file/hMQDmaSL#UpX5zgS0ig9iXLZq4QGB_k-rsuNyE3LVTm6pJ9fz4aY)
 
 [EMC 2010 10 sesiones de conferencias](https://mega.nz/folder/G9ZyCYBT#hQiq1Bj7IZhzKdKFSjb3yw/folder/rohzXD7b)
 
@@ -99,6 +201,11 @@ Mi Repositorio de Trucos y Técnicas
 
 # Cardistry
 [Genesis V2 - 15 videos](https://drive.google.com/drive/folders/1_Se5QuGGgfIef6BXOMWwFELuh9eGCq09)
+
+
+# Apps
+[coin in movil .apk](https://mega.nz/file/CiRhHKxB#j6_2f5sURv3377nyIvq33U0nQ0WgaY15kM48sFqUHys)
+
 <!--1. BIENVENID@
 2. EL GRAN SECRETO DE LA MAGIA
 
