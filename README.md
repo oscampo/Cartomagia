@@ -5,7 +5,7 @@ Mi Repositorio de Trucos y Técnicas
 
 [The Magic Crasher David Bonfadini](https://mega.nz/file/LlwkxJqa#qgO59dMAOEi5ekhhxX_Wql90JlPVetiUZqJF29-n4RM)
 
-[Cambio de Ropa, Infantil, Tumbtipedia](https://mega.nz/folder/idkjmZYJ#tVgekn0E3yt24c20EHLXpg)
+[Cambio de Ropa, Magia Infantil, Tumbtipedia](https://mega.nz/folder/idkjmZYJ#tVgekn0E3yt24c20EHLXpg)
 
 [Odyssey by Rodrigo Romano](https://mega.nz/folder/qp82iIZL#RFlF9yM-B48peQtZ2ubatw)
 
