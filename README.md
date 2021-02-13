@@ -1,9 +1,13 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 
+[LOPEZ by Mario Lopez GrupoKaps Productions Vol. 1](https://mega.nz/file/m2pCXaCY#EV8d2hgj2hHbnGPMxZWsqV5kgxBn6tSNHWBJIZsAtvQ)
+
+[Mario Lopez - Lunes](https://mega.nz/file/AJFGXLxS#8eSG2WXV8_2b9di4w5Zavh0sMzfmpg15qG50Qzum0mg)
+
 [Shadow Splitter by Hui Zheng](https://mega.nz/file/OwoXSY6Q#djf58FmFzJo6RbDLX46JdQG8sPDvuDWOggvJUryLqdg)
 
-[Revamp by nicholas lawrence](https://mega.nz/file/ekQHxCBC#rd3exQZJElvX2IqOwI2m7705X5M7Eue1gK6TsQhu2eU)
+[Revamp by Nicholas Lawrence](https://mega.nz/file/ekQHxCBC#rd3exQZJElvX2IqOwI2m7705X5M7Eue1gK6TsQhu2eU)
 
 [Extreme Burn 2.0](https://drive.google.com/drive/folders/1zLPIR6pjdvjhEy5QfO8ZLKAxd_0ybsmK)
 
