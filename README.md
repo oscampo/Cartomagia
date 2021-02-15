@@ -3,6 +3,14 @@ Mi Repositorio de Trucos y Técnicas
 
 
 
+[Seamless by Glenn West](https://mega.nz/file/vloAhSDb#bf9pWi5WGpyAYci6dzSzlQARm6ZF-Pr9QsAxPzOMb14)
+
+[Butterfly Torn by Yvan Garmy](https://mega.nz/file/TkxBTI7Y#lSznviDu4HLGjbsZUZgDPBdsQaWncsINUsYJmZVZbxE)
+
+[Tornagomi by Nadav Kapuano](https://mega.nz/file/f5I3gapQ#UdqDtOKqRKDZnhh3qFjbdDrbs9D7ued0xi3a9CRcTxo)
+
+[Yves Doumergue - Torn Restored](https://mega.nz/file/z0h0wawZ#0_lR4B85F8ehz9YCTgvodgOj0MasY6uOb7QC8kQeeGU)
+
 [The Magic Crasher David Bonfadini](https://mega.nz/file/LlwkxJqa#qgO59dMAOEi5ekhhxX_Wql90JlPVetiUZqJF29-n4RM)
 
 [Cambio de Ropa, Magia Infantil, Tumbtipedia](https://mega.nz/folder/idkjmZYJ#tVgekn0E3yt24c20EHLXpg)
