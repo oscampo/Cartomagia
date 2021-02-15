@@ -5,7 +5,7 @@ Mi Repositorio de Trucos y Técnicas
 
 [Los 5 Libros de Cartomagia Semiautomática de DaniDaortiz](https://mega.nz/folder/6hpU2ABC#xipVaytGespYQKrwQUUwSA)
 
-[https://mega.nz/file/Z9BCFBQQ#qXdZSIZnwvNcpjTY78la6_ZUX1V70oYDv2FuLRUyaXQ](https://mega.nz/file/Z9BCFBQQ#qXdZSIZnwvNcpjTY78la6_ZUX1V70oYDv2FuLRUyaXQ)
+[Wonder Box](https://mega.nz/file/Z9BCFBQQ#qXdZSIZnwvNcpjTY78la6_ZUX1V70oYDv2FuLRUyaXQ)
 
 [Darkslide by Chris Ramsay](https://drive.google.com/file/d/1N1FBU-lU11ojl3v3q_lBZ5NGFmX3P7SU/view?fbclid=IwAR17X22q6gOmfmqIsxTWGvb7THSH0gW5aEkEot4qvQTrJR9R4zcxsOalMnQ)
 
