@@ -1,7 +1,15 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 
+[Magic with Cigarettes By Mario Lopez](https://mega.nz/file/nkI1xIII#hkTFRn7y7EZWUvgegCn4T3HmklgzfVj-FkVzbsDlw5Y)
 
+[Los 5 Libros de Cartomagia Semiautomática de DaniDaortiz](https://mega.nz/folder/6hpU2ABC#xipVaytGespYQKrwQUUwSA)
+
+[https://mega.nz/file/Z9BCFBQQ#qXdZSIZnwvNcpjTY78la6_ZUX1V70oYDv2FuLRUyaXQ](https://mega.nz/file/Z9BCFBQQ#qXdZSIZnwvNcpjTY78la6_ZUX1V70oYDv2FuLRUyaXQ)
+
+[Darkslide by Chris Ramsay](https://drive.google.com/file/d/1N1FBU-lU11ojl3v3q_lBZ5NGFmX3P7SU/view?fbclid=IwAR17X22q6gOmfmqIsxTWGvb7THSH0gW5aEkEot4qvQTrJR9R4zcxsOalMnQ)
+
+[TRU XTREME DE MENNY LINDELFELD](https://mega.nz/folder/1nYgWQpR#RMO4YJVJRiw_yQ7UgigVIg)
 
 [Seamless by Glenn West](https://mega.nz/file/vloAhSDb#bf9pWi5WGpyAYci6dzSzlQARm6ZF-Pr9QsAxPzOMb14)
 
