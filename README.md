@@ -1,6 +1,38 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 
+[Clear Choice - Thinking Paradox](https://mega.nz/file/S4VnSbrI#CLtqdK3eo9dxzbFuDzPpSJO0FImkY8MYsv-XB-UxEvs)
+
+[charpie color change](https://mega.nz/folder/btwB0JjB#nAxB4441Ig50SGoMK5Ll6Q)
+
+[X Change by Julio Montoro and SansMinds](https://mega.nz/file/yA9HBAQY#VC_TZfW4LthMCN1ykcRnQibjbVE6dJgXL_gE6pAGEPM)
+
+[Chad Nelson - Spread Pass](https://mega.nz/file/zd80VKYT#9TegDj5Y9VTeDRqVYqbp25yJhxhrCh94RlOzg2K2RjU)
+
+[carta apuñalada efecto](https://mega.nz/file/SXgxma7I#aWVUz-lSY-L7aIu31QzeOEp7862XVux6FKvUPIiyExE)
+
+[Varios Ellusionist](https://mega.nz/folder/TtB3iKAI#XHYYLrt43_1k8i0i3I_G-w)
+
+[Dan Fleshman - The Restaurant Magic Vol2](https://mega.nz/file/7IAQwS6a#U9j7_806WWMh-06ZtYUJ36wkYawASemF6hEeKldl-uA)
+
+[Bottled Up by Jared Millican](https://mega.nz/folder/iVM1DaAA#oIIie9X1wVDwORJJaKWovQ)
+
+[Big Blind Media - Ultimate Self Working Card Trick](https://mega.nz/file/UV4lgKaQ#0mfaVUopZOuMyDWDbJeb8_q4M5oJNQryBlIl5UJHGyQ)
+
+[Alfredo Marchese - Magia para niños - Vol 1](https://mega.nz/file/XGBjjYTb#Ma_NNzy6duLRfL0TswWjZIul3hAlgR1za2RAiJxnD44)
+
+[18_TRUCOS CON OBJETOS COMO DOBLAR TENEDORES](https://mega.nz/file/1ctgGYoA#0f955nEVVZC5vXYq0wlV3ZhsFgDr6ohQDDv8X7tt3Ac)
+
+[1_L-D_by_Lennart_Green_-_Dani_DaOrtiz](https://mega.nz/file/hhEjiL5T#8tqWuz7-h51er8egzO5dNAIYN1MfeUsuzSjvhU5sfkg)
+
+[Bolas de Esponja - Eric Leclerc](https://mega.nz/file/LtMVRISQ#qj-Pg3iDg-rm4l8xJRxxSZKJe_S2a6iuuD4R1DRa1ME)
+
+[Aldo Colombini - Knock-Outs](https://mega.nz/file/0EZ1CKRD#9UH98Ulqel4TXjDfdirnsdhOwqEmc8FrJ-r9XoX5dm4)
+
+[Apollo Ascending by Apollo Riego](https://mega.nz/file/j8FFWaQC#W6cAU7ojj-0834df-IfSEaws-5OSOBAjDQbTGa-yP-A)
+
+[Optix by Tobias Dostal](https://mega.nz/file/Ks4m3a7I#T2QIwqcT0UaqN2UDhVKUN9yEc5coYOVFXAeWVH-Dn18)
+
 [Magic with Cigarettes By Mario Lopez](https://mega.nz/file/nkI1xIII#hkTFRn7y7EZWUvgegCn4T3HmklgzfVj-FkVzbsDlw5Y)
 
 [Los 5 Libros de Cartomagia Semiautomática de DaniDaortiz](https://mega.nz/folder/6hpU2ABC#xipVaytGespYQKrwQUUwSA)
