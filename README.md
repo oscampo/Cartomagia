@@ -1,6 +1,10 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 
+[100th Monkey - Español](https://mega.nz/folder/1NRnWKjI#LUGEkD9HaLukYQdcGXrd4w)
+
+[Ambi Hole by Mickael Chatelain](https://mega.nz/file/P9hDRagb#Zbevxu3yzJKFOYXoN5RmS0TgdYzCcKGPkDq0GAcAIdc)
+
 [Clear Choice - Thinking Paradox](https://mega.nz/file/S4VnSbrI#CLtqdK3eo9dxzbFuDzPpSJO0FImkY8MYsv-XB-UxEvs)
 
 [charpie color change](https://mega.nz/folder/btwB0JjB#nAxB4441Ig50SGoMK5Ll6Q)
