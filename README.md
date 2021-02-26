@@ -1,6 +1,10 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 
+[Zero elementos 1](https://mega.nz/file/lU4GCIrK#4pbcnvopc_f6tyGjttNtpolK8QM6cLXKclXGPlYOpsM)
+
+[Zero elementos 2](https://mega.nz/file/kUxSWaRK#UJZpMXh78uHhaI4A2ahDvG6XLfhSwf30gHK3tPOtGlc)
+
 [100th Monkey - Español](https://mega.nz/folder/1NRnWKjI#LUGEkD9HaLukYQdcGXrd4w)
 
 [Ambi Hole by Mickael Chatelain](https://mega.nz/file/P9hDRagb#Zbevxu3yzJKFOYXoN5RmS0TgdYzCcKGPkDq0GAcAIdc)
