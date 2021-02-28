@@ -1,6 +1,7 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
+[Cut by Bacon Fire (Banda de caucho que atraviesa una carta)](https://mega.nz/file/m1Rz0ILS#yPdlLFXyhgM4pzIwerXro1NfmXHjPzysh99GmkoQyVo)
 
 [Fruitfull 2.o Juan Pablo Ibáñez. Pass: BGZC5O](https://www.murphysmagic.com/juanpablo/fruitfull2/)
 
