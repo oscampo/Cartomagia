@@ -1,6 +1,9 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
+
+[revealed-totally-hands-off-by-dani-daortiz](https://mega.nz/file/Km5yAT6R#bOfa5xqj0vEbtqo1vk5hdw3xw8r-sjWLcdcxlwGAx7g)
+
 [El Experto en la Mesa de Juego en Video - Dai Vernon](https://mega.nz/folder/YpFGkSrK#71ImrGZWnSQyPAmqTN-5jw)
 
 [Cut by Bacon Fire (Banda de caucho que atraviesa una carta)](https://mega.nz/file/m1Rz0ILS#yPdlLFXyhgM4pzIwerXro1NfmXHjPzysh99GmkoQyVo)
