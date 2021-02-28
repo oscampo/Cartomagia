@@ -2,6 +2,8 @@
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
 
+[Fruitfull 2.o Juan Pablo Ibáñez. Pass: BGZC5O](https://www.murphysmagic.com/juanpablo/fruitfull2/)
+
 [Zero elementos 1](https://mega.nz/file/lU4GCIrK#4pbcnvopc_f6tyGjttNtpolK8QM6cLXKclXGPlYOpsM)
 
 [Zero elementos 2](https://mega.nz/file/kUxSWaRK#UJZpMXh78uHhaI4A2ahDvG6XLfhSwf30gHK3tPOtGlc)
