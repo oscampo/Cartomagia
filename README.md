@@ -1,6 +1,13 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
+
+[STATIC MARKER - TUTORIAL](https://wondermakershop.com/pages/staticmarker)
+
+[travel by jordan victoria ](https://mega.nz/file/P3BWyRZL#L9a8yi5eiRbFRQp5ylpmugWog1l3sYAM0XxNhmAxizA)
+
+[Penguin Live Lecture - Roberto Giobbi](https://mega.nz/file/VAhWnKBb#BCTPvZs9rd4v1BWdS_jt25JjxelaFrELkgnlC1uh8Oc)
+
 [Dan Hauss - Forbidden restaurar una manzana mordida, moneda dentro de manzana y otros](https://mega.nz/file/GwQVzQAA#Yn2Hl1wj0COrQS_zo8o-LPG8gphPWusph5y5pbdiwCQ)
 
 [revealed-totally-hands-off-by-dani-daortiz](https://mega.nz/file/Km5yAT6R#bOfa5xqj0vEbtqo1vk5hdw3xw8r-sjWLcdcxlwGAx7g)
