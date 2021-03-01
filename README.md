@@ -1,6 +1,7 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
+[Dan Hauss - Forbidden restaurar una manzana mordida, moneda dentro de manzana y otros](https://mega.nz/file/GwQVzQAA#Yn2Hl1wj0COrQS_zo8o-LPG8gphPWusph5y5pbdiwCQ)
 
 [revealed-totally-hands-off-by-dani-daortiz](https://mega.nz/file/Km5yAT6R#bOfa5xqj0vEbtqo1vk5hdw3xw8r-sjWLcdcxlwGAx7g)
 
