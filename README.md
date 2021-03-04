@@ -2,6 +2,7 @@
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
 
+[Oil and WHAT THE… | by Takeshi Taniguchi](https://drive.google.com/file/d/1qRXmerPj2R-ZeJp7X9cxeI1-NnrzA1vT/view)
 
 [Juegos con un anillo](https://photos.google.com/share/AF1QipNLSuOq4CN6SnDE-R3N2qvi1CIowvrydCT01BGT68K2rJnOQXI3wMdKR_pCtLqrbg/photo/AF1QipP2m7lm5Y5lZEpcgpTGtFifJN8SjkT60E1VTLgh?key=MHJnOTVCRDBOcUdZenk0b3Z5NVQ5Y0RmTGd5U2lB)
 
