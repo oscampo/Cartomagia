@@ -2,6 +2,24 @@
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
 
+
+
+[Cinco Rutinas Cartomagicas By Gabi Pareras ](https://mega.nz/file/JZQTyAxL#oh8x6dhBrzG7G-NjivF5MDlcskqt17nXpYg1HAAzFh4)
+
+[Penguin Live Lecture - Rocco Silano](https://cloud.mail.ru/public/7bTy/nUsQNGG7p)
+
+[Penguin Live Lecture - Robert Ramirez Act](https://drive.google.com/file/d/1lkSXB6RjIySY8cgWnovn_X0G5fZxa7WL/view?fbclid=IwAR2_TywDy2cCI6TPgK0PhDzoZeedkNUQ5WKV4PWhib4O8UTJ_qs650d7S-g)
+
+[Tru Xtreme](https://mega.nz/folder/1nYgWQpR#RMO4YJVJRiw_yQ7UgigVIg)
+
+[Psycho Bands by Cyril Thomas - Calvin Liew ](https://mega.nz/file/koEyzZhC#iYRwqGnhJcexRRq4ciHiYxtZyvQjj79DInNCciQNJBk)
+
+[Trespassing by Smagic Productions](https://mega.nz/file/T8xmwBjA#2Nd4AC-96WOcKokHxA_MfqDvJEqRmFcyWFKGRl1Q7g8)
+
+[Michael Ammar - Easy to Master Card Miracles](https://mega.nz/file/ihVEhKoQ#UtsGL1m1f43mwS2JWDrfWyRJpN9DbQJ3F9K3EeQg9W8)
+
+[Antiguos libros de Magia](https://mega.nz/folder/lAkUUCpJ#J8l82vP3d3TOccGJ6oglkw)
+
 [Oil and WHAT THE… | by Takeshi Taniguchi](https://drive.google.com/file/d/1qRXmerPj2R-ZeJp7X9cxeI1-NnrzA1vT/view)
 
 [Juegos con un anillo](https://photos.google.com/share/AF1QipNLSuOq4CN6SnDE-R3N2qvi1CIowvrydCT01BGT68K2rJnOQXI3wMdKR_pCtLqrbg/photo/AF1QipP2m7lm5Y5lZEpcgpTGtFifJN8SjkT60E1VTLgh?key=MHJnOTVCRDBOcUdZenk0b3Z5NVQ5Y0RmTGd5U2lB)
