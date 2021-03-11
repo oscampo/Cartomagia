@@ -18,7 +18,6 @@ Mi Repositorio de Trucos y Técnicas
 
 [Michael Ammar - Easy to Master Card Miracles](https://mega.nz/file/ihVEhKoQ#UtsGL1m1f43mwS2JWDrfWyRJpN9DbQJ3F9K3EeQg9W8)
 
-[Antiguos libros de Magia](https://mega.nz/folder/lAkUUCpJ#J8l82vP3d3TOccGJ6oglkw)
 
 [Oil and WHAT THE… | by Takeshi Taniguchi](https://drive.google.com/file/d/1qRXmerPj2R-ZeJp7X9cxeI1-NnrzA1vT/view)
 
