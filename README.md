@@ -2,6 +2,30 @@
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
 
+[Banachek - PSI Vol 1](https://mega.nz/file/X2h2iCxS#mf_ANnhQ8uFQPeV7fX3ip5zfl8AA0vC9IBZ2GcAjPrc)
+
+[P A C K - D E - M A G I A - 1 Mucho material](https://mega.nz/folder/u3pmkIbI#6YFcUMH_UrnCPnchNwQkXA)
+
+[JC Sum & Magic Babe Ning - Behind the Illusions 2](https://mega.nz/file/VIYxlIDa#xicqIcpfbl8NIkilILfHCp7btW1ibU0WohWd3HB8Ia8)
+
+[Dan Fleshman - The Restaurant Magic of Dan Fleshman](https://mega.nz/file/OewkxZRI#zls6xLZYLDTayXAGmLbpdLtEoabaWyO18NMF_mtzDkU)
+
+[Cookie Bite by Eric Ross presented by Rick Lax ](https://mega.nz/file/P5hiDBDJ#KmLsETQG5BmywBogWmNAQ1K0BVbaFlvyw23zSqxN-54)
+
+[Penguin Live Lecture - Chris Randall](https://mega.nz/file/5MUhRC4D#2ub2tGFIaX5C1tt57Cyp90oM6SHdIRc8vBOcPcLjMtc)
+
+[Klapklip By Rama Yura](https://drive.google.com/file/d/107BkDPeQEZBqomwsC90QT1adhUji7BwF/view)
+
+[At the Table Live Gazzo 2016](https://mega.nz/folder/K9ZwRSyZ#_AgfOAhpe55ejjg6CQaw9A)
+
+[Luis Otero - Baraja Svengali ](https://mega.nz/file/QxB0BAKS#QR-4yBBQnUiRRl05exJETj-2HdzoJqj2jZnR_CFoxc4)
+
+[Vertigo by Rodrigo Romano -predicciones-](https://mega.nz/file/k0hhWIRA#mkuunasl31t5gEYEi3_DaAQNQmwLHvvF4j-FopkXwZg)
+
+[Odyssey by Rodrigo Romano vol.1](https://mega.nz/file/4GZgzJ7S#GBoSffVXJFjv_b3DXnWHFBEqrA5hSVbVzAfF6dNK39Y)
+
+[Pickpocketing](https://mega.nz/folder/t7YzzCha#tunZXl_OpwpgxAMra4VNWg)
+
 [Libros Antiguos](https://mega.nz/folder/ukgyTDSK#ipO2B1aNVRfF81csyZcCSA)
 
 [Aldo Colombini - Face-Off](https://mega.nz/file/lNxnkYQQ#qEFhc15uhIsRqfdeJ6chfeZ1rw1nxvxeJbGigyUvX6U)
@@ -71,7 +95,25 @@ Mi Repositorio de Trucos y Técnicas
 
 [18_TRUCOS CON OBJETOS COMO DOBLAR TENEDORES](https://mega.nz/file/1ctgGYoA#0f955nEVVZC5vXYq0wlV3ZhsFgDr6ohQDDv8X7tt3Ac)
 
+[Invisible Speller by Dani DaOrtiz](https://mega.nz/file/nPom3JJQ#WmqPrFhpRexADs5ZBjLouJlHdMZsO_g1K_yFTiMjDSU)
+
 [1_L-D_by_Lennart_Green_-_Dani_DaOrtiz](https://mega.nz/file/hhEjiL5T#8tqWuz7-h51er8egzO5dNAIYN1MfeUsuzSjvhU5sfkg)
+
+[Varios Dani DaOrtiz](https://mega.nz/folder/IkYhwChS#kR5u1phI64CmGBmQbxAhEw)
+
+[Dani DaOrtiz - Utopia Vol. 1-4](https://mega.nz/folder/QiYViSKK#YTY4zviaIjrpycA9cUIvKQ)
+
+[HERE & NOW by Dani DaOrtiz DVD1](https://mega.nz/file/JdVA1AKK#OFJI_DDQ2TQW-EXK2aYDazPweRfFnuhl0YPgRJ0cYyc)
+
+[Here and Now Vol 1 - Dani DaOrtiz](https://lbry.tv/@mageekcians:3/here-and-now-dani-daortiz:2?r=BeivrTNSgfhVDsmTjZ5JStfXL1m5kr4u)
+
+[Here and Now Vol 2 - Dani DaOrtiz](https://lbry.tv/@mageekcians:3/here-and-now-vol-2-dani-daortiz:0?r=BeivrTNSgfhVDsmTjZ5JStfXL1m5kr4u)
+
+[HERE & NOW by Dani DaOrtiz DVD3](https://mega.nz/file/oBF1kayK#EuoqHkkIw7r7hhEPqPCaRcpDovjZsKDjIded5LHj8us)
+
+[Here and Now Vol 4 - Dani DaOrtiz](https://lbry.tv/@mageekcians:3/here-and-now-vol-4-dani-daortiz:a?r=BeivrTNSgfhVDsmTjZ5JStfXL1m5kr4u)
+
+[Pengüin Lecture Vol 2 - Dani DaOrtiz](https://lbry.tv/@mageekcians:3/peng%C3%BCin-lecture-dani-daortiz:8)
 
 [Bolas de Esponja - Eric Leclerc](https://mega.nz/file/LtMVRISQ#qj-Pg3iDg-rm4l8xJRxxSZKJe_S2a6iuuD4R1DRa1ME)
 
@@ -108,8 +150,6 @@ Mi Repositorio de Trucos y Técnicas
 [Incomparable by Finn Jon](https://drive.google.com/file/d/1GWAD7P-Gvy_kcMk1nsWVxK95MgLUvJru/view?fbclid=IwAR3SRr_3HD-AH8gVbQRyqBHSEjeALPBUOb2CQ2vwasLvojViasKhgR39rXw)
 
 [Penguin Live Lecture - John Bannon](https://drive.google.com/file/d/1HTuaV0N3etBbvw4Ityp2onb_pjeOhU_m/view?fbclid=IwAR1WadNxC1VWJ853zlTiXlMeDzEXOkiDI8BUEAu6a6ryg6iQeAuNiOUdoQk%5D(https://drive.google.com/file/d/1HTuaV0N3etBbvw4Ityp2onb_pjeOhU_m/view?fbclid%3DIwAR1WadNxC1VWJ853zlTiXlMeDzEXOkiDI8BUEAu6a6ryg6iQeAuNiOUdoQk))
-
-[Varios Dani DaOrtiz](https://mega.nz/folder/IkYhwChS#kR5u1phI64CmGBmQbxAhEw)
 
 [Automatic by Alex Hansford](https://drive.google.com/file/d/1V-CfT1r1yVW-57uhx8WZ8zR2-lILj72_/view?fbclid=IwAR15PmIjthBrfrE9tqS8jXgt0mNJHdQ1RPn5ab_UtI06nV9d2AhvJxKirN8)
 
@@ -197,8 +237,6 @@ Mi Repositorio de Trucos y Técnicas
 
 [Laura London - Card In Bottle]9https://mega.nz/file/Qx5zRSoK#4r2u9iHOqJu_y22OmBvTuDbPKPnbbtSOrwjISF-DNy8)
 
-[Dani DaOrtiz - Utopia Vol. 1-4](https://mega.nz/folder/QiYViSKK#YTY4zviaIjrpycA9cUIvKQ)
-
 [LOPEZ by Mario Lopez GrupoKaps Productions Vol. 1](https://mega.nz/file/m2pCXaCY#EV8d2hgj2hHbnGPMxZWsqV5kgxBn6tSNHWBJIZsAtvQ)
 
 [Mario Lopez - Lunes](https://mega.nz/file/AJFGXLxS#8eSG2WXV8_2b9di4w5Zavh0sMzfmpg15qG50Qzum0mg)
@@ -227,21 +265,11 @@ Mi Repositorio de Trucos y Técnicas
 
 [Prisioners by Alex Pandrea](https://mega.nz/file/hMQDmaSL#UpX5zgS0ig9iXLZq4QGB_k-rsuNyE3LVTm6pJ9fz4aY)
 
+[Alex Pandrea - Over This World ](https://mega.nz/file/ABJlDCjI#N2h32ZsqQm2lvetQNv44f_JGfIaS3hZKBQkkaoqmeSw)
+
 [EMC 2010 10 sesiones de conferencias](https://mega.nz/folder/G9ZyCYBT#hQiq1Bj7IZhzKdKFSjb3yw/folder/rohzXD7b)
 
 [Invisible Speller by Dani Daortiz](https://mega.nz/file/3WZDzADS#4zmTIyBLs_13ke8mNk7I1IJ5vq4EeO95yoi_-S9TpLk)
-
-[HERE & NOW by Dani DaOrtiz DVD1](https://mega.nz/file/JdVA1AKK#OFJI_DDQ2TQW-EXK2aYDazPweRfFnuhl0YPgRJ0cYyc)
-
-[Here and Now Vol 1 - Dani DaOrtiz](https://lbry.tv/@mageekcians:3/here-and-now-dani-daortiz:2?r=BeivrTNSgfhVDsmTjZ5JStfXL1m5kr4u)
-
-[Here and Now Vol 2 - Dani DaOrtiz](https://lbry.tv/@mageekcians:3/here-and-now-vol-2-dani-daortiz:0?r=BeivrTNSgfhVDsmTjZ5JStfXL1m5kr4u)
-
-[HERE & NOW by Dani DaOrtiz DVD3](https://mega.nz/file/oBF1kayK#EuoqHkkIw7r7hhEPqPCaRcpDovjZsKDjIded5LHj8us)
-
-[Here and Now Vol 4 - Dani DaOrtiz](https://lbry.tv/@mageekcians:3/here-and-now-vol-4-dani-daortiz:a?r=BeivrTNSgfhVDsmTjZ5JStfXL1m5kr4u)
-
-[Pengüin Lecture Vol 2 - Dani DaOrtiz](https://lbry.tv/@mageekcians:3/peng%C3%BCin-lecture-dani-daortiz:8)
 
 [INKLING by Abdullah Mahmoud](https://mega.nz/file/ORtRHKyY#ao-W16hyj-Q1C_TYa3-IIrdZhEdNFEGTE2tOmXy1ywU)
 
