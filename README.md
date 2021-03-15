@@ -2,6 +2,9 @@
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
 
+[Daniel Madison - Mechanic V0l 1](https://mega.nz/file/d4AXXYbJ#wu5SeIda7cAS6y8elbarq2zKD_0zET_HcH1xb9I4U8o)
+
+[Shin Lim y Daniel Madison](https://mega.nz/folder/ukQB0DYB#GuwCfQV1rkSL_1V687pCgA)
 
 [Finn Jon and Yigal Mesika - Loops vol. 2](https://mega.nz/file/7RsE0ZzQ#QLbz-qppsoFVmyc0QFeDJOTiVUtSzJH30aRFx0ZZ9bM)
 
