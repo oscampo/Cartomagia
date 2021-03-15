@@ -2,6 +2,9 @@
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
 
+
+[Finn Jon and Yigal Mesika - Loops vol. 2](https://mega.nz/file/7RsE0ZzQ#QLbz-qppsoFVmyc0QFeDJOTiVUtSzJH30aRFx0ZZ9bM)
+
 [Banachek - PSI Vol 1](https://mega.nz/file/X2h2iCxS#mf_ANnhQ8uFQPeV7fX3ip5zfl8AA0vC9IBZ2GcAjPrc)
 
 [P A C K - D E - M A G I A - 1 Mucho material](https://mega.nz/folder/u3pmkIbI#6YFcUMH_UrnCPnchNwQkXA)
@@ -27,6 +30,8 @@ Mi Repositorio de Trucos y Técnicas
 [Pickpocketing](https://mega.nz/folder/t7YzzCha#tunZXl_OpwpgxAMra4VNWg)
 
 [Libros Antiguos](https://mega.nz/folder/ukgyTDSK#ipO2B1aNVRfF81csyZcCSA)
+
+[Libros Clásicos](https://mega.nz/folder/ukgyTDSK#ipO2B1aNVRfF81csyZcCSA)
 
 [Aldo Colombini - Face-Off](https://mega.nz/file/lNxnkYQQ#qEFhc15uhIsRqfdeJ6chfeZ1rw1nxvxeJbGigyUvX6U)
 
@@ -94,6 +99,8 @@ Mi Repositorio de Trucos y Técnicas
 [Alfredo Marchese - Magia para niños - Vol 1](https://mega.nz/file/XGBjjYTb#Ma_NNzy6duLRfL0TswWjZIul3hAlgR1za2RAiJxnD44)
 
 [18_TRUCOS CON OBJETOS COMO DOBLAR TENEDORES](https://mega.nz/file/1ctgGYoA#0f955nEVVZC5vXYq0wlV3ZhsFgDr6ohQDDv8X7tt3Ac)
+
+[Dani DaOrtiz Connected](https://mega.nz/file/iroD0ASR#b_7gexJqtdDZrI0aLfTFpxLwe_Pl0TKbIVU584IDuew)
 
 [Invisible Speller by Dani DaOrtiz](https://mega.nz/file/nPom3JJQ#WmqPrFhpRexADs5ZBjLouJlHdMZsO_g1K_yFTiMjDSU)
 
