@@ -2,6 +2,11 @@
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
 
+
+[Blind Flap by PH & Mario Tarasini](https://mega.nz/file/ToxRVaaQ#fNF775ETqY_Y2Nv1qxh_8Nl2uR7oDlfqFY74M7uNl8Y)
+
+[Roman Garcia - El Falsificador](https://mega.nz/file/9Q0XnaiS#zeKK30zKzSHQIMpnlQDUHEkcC2uMkZ33HMeb2Gelsbs)
+
 [Daniel Madison - Mechanic V0l 1](https://mega.nz/file/d4AXXYbJ#wu5SeIda7cAS6y8elbarq2zKD_0zET_HcH1xb9I4U8o)
 
 [Shin Lim y Daniel Madison](https://mega.nz/folder/ukQB0DYB#GuwCfQV1rkSL_1V687pCgA)
