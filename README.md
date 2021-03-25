@@ -1,7 +1,25 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
-<!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) -->
+<!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
+[Oil and WHAT THE… | by Takeshi Taniguch]-->
 
+[Abdullah Mahmoud - Clearly Impossible](https://mega.nz/file/RA0ShYqR#rcHCJGZerLKfUEZ59XLueyL4INVS-zkF-I-WHeYZ3N8)
+
+[Eric Jones - Metal 5 REDUX](https://mega.nz/file/RlEj3aCY#S3gCFuNBMQGTcCbxkjuxOEfDbxQloPUwoylz6zV5P-8)
+
+[52_Gone_by_Nate_Kranzo](https://cloud.mail.ru/public/AVzf/6DhAVGEU9)
+
+[Fork Through Finger by Axel Hecklau](https://mega.nz/file/v4ASVbRA#odvTeYIgtGwXWM2vSc4g8Znv7G6oRuaoIN39pPlcmSU)
+
+[Close-Up Killers by Bob Cassidy](https://drive.google.com/file/d/1LW5-QgPT7bFdnrzaVc2H2jPR_2VojYAc/view)
+
+[Above Ground by Jared Hansen](https://drive.google.com/file/d/1Yej9Q-y90j_mTgRXXtPN6KkT1JiaWTK8/view)
+
+[Eduardo Galeano - Multiple Card Manipulations](https://drive.google.com/file/d/1H3tNzk6rZBO_TosNTLzr9cmkQEcqgmfK/view)
+
+[Magnet-0 by Henry Harrius & Armando C](https://mega.nz/file/j5532S5B#85ZRWQISE5JI4sMAvjl2RYsfL0XODP47OwWGlDkrHgk)
+
+[Fernando Mier - Boom](https://mega.nz/folder/MXoBjCRR#LcDQk3FzmIMD7lVatVYTIA)
 
 [Blind Flap by PH & Mario Tarasini](https://mega.nz/file/ToxRVaaQ#fNF775ETqY_Y2Nv1qxh_8Nl2uR7oDlfqFY74M7uNl8Y)
 
@@ -30,6 +48,8 @@ Mi Repositorio de Trucos y Técnicas
 [At the Table Live Gazzo 2016](https://mega.nz/folder/K9ZwRSyZ#_AgfOAhpe55ejjg6CQaw9A)
 
 [Luis Otero - Baraja Svengali ](https://mega.nz/file/QxB0BAKS#QR-4yBBQnUiRRl05exJETj-2HdzoJqj2jZnR_CFoxc4)
+
+[Luis Otero -Live GKAPS](https://drive.google.com/file/d/1OaFbyyz8utCcTwgKpt77RbZbDYiQ572t/view)
 
 [Vertigo by Rodrigo Romano -predicciones-](https://mega.nz/file/k0hhWIRA#mkuunasl31t5gEYEi3_DaAQNQmwLHvvF4j-FopkXwZg)
 
