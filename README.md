@@ -3,6 +3,16 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguch]-->
 
+
+
+[RAW by J.VICTORIA](https://cloud.mail.ru/public/FBTS/SCZfTFJNS)
+
+[Ruthguiller Dumont - Underground (vol. 1)](https://mega.nz/folder/JElDWaKD#z3FpWi8SyHFjmljPkVDH8g)
+
+[C-Fold by Scott Alexander](https://mega.nz/file/2bpnwSCD#zxLbFKcGbApLSIcNb8NNJymjXw4gwHJWTtiZDfppv4I)
+
+[Glitch by B.SMITH](https://www.youtube.com/watch?v=T1CCknrgEvo)
+
 [Abdullah Mahmoud - Clearly Impossible](https://mega.nz/file/RA0ShYqR#rcHCJGZerLKfUEZ59XLueyL4INVS-zkF-I-WHeYZ3N8)
 
 [Eric Jones - Metal 5 REDUX](https://mega.nz/file/RlEj3aCY#S3gCFuNBMQGTcCbxkjuxOEfDbxQloPUwoylz6zV5P-8)
