@@ -3,7 +3,17 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguch]-->
 
-[Movemint by Darryl Vanamburg](https://mega.nz/file/WuZRSQTR#y_XBkCUJO8UFidOUXctlPSg5JAlxZnklwE8LnE5ENZc)
+[Continnum by Jason Knowles](https://mega.nz/file/WwgyGACZ#OpOV36D7Bw4uHLaBWzc4DoNLx22L8PZqYNBuq63XKUo)
+
+[BulletProof Sleeving by Justin Miller](https://drive.google.com/file/d/1U_vZzFhTzWYLC9cxLy-L2oxnQRNovkFh/view)
+
+[The Vault - WING by Ade Rahmat ](https://mega.nz/file/u0YQBDqQ#4cFFrehIP6VXM2pdc5bedcrYMnNfc_FntlXl2oKNs5s)
+
+[Lock, Stock & Riot](https://cloud.mail.ru/public/HCes/nFg7vxKSq)
+
+[Gone Deck by Shin Lim](https://cloud.mail.ru/public/7XE8/yFDPhATh1)
+
+[A Study On Lennart Green by Takumi Takahashi](https://mega.nz/file/qPQTCC5Q#l8ThcuYs--2hnBS6-AXpmXYeVxyX3PyxaTTveryggrY)
 
 [RAW by J.VICTORIA](https://cloud.mail.ru/public/FBTS/SCZfTFJNS)
 
@@ -137,6 +147,8 @@ Mi Repositorio de Trucos y Técnicas
 [Alfredo Marchese - Magia para niños - Vol 1](https://mega.nz/file/XGBjjYTb#Ma_NNzy6duLRfL0TswWjZIul3hAlgR1za2RAiJxnD44)
 
 [18_TRUCOS CON OBJETOS COMO DOBLAR TENEDORES](https://mega.nz/file/1ctgGYoA#0f955nEVVZC5vXYq0wlV3ZhsFgDr6ohQDDv8X7tt3Ac)
+
+[7 Secrets by Dani DaOrtiz](https://mega.nz/file/uRl0BaLC#YiEHQ_b5v5d8Ra0hkRlb4LBaNVZvCSQ-wBY72BhCNMM)
 
 [Dani DaOrtiz Connected](https://mega.nz/file/iroD0ASR#b_7gexJqtdDZrI0aLfTFpxLwe_Pl0TKbIVU584IDuew)
 
