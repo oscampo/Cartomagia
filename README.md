@@ -3,6 +3,28 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguch]-->
 
+
+
+[Rejoined](https://mega.nz/?fbclid=IwAR2Fq59kc-ZL6i3_J68Tw9w-e1xVZdE0Rgfd1Krygrw4__Sx1Z_smFjSNBQ#!gixxkIoC!4_yhQFbOEL8aA8L20SapLzG0lqiFzZLUPQzZAvOANHM)
+
+[uan Tamariz Mnemonica miracles](https://mega.nz/folder/oeICDSjL#eRYZYjqTQyP0RuKonV0OWA)
+
+[CardinB](https://mega.nz/file/7tQkBBaD#K7r-ASQ78teg1BfRhGIP8z6W7IIboiZH23i7wNUmU6M)
+
+[Automatic by Alex Hansford](https://drive.google.com/file/d/1V-CfT1r1yVW-57uhx8WZ8zR2-lILj72_/view?fbclid=IwAR15PmIjthBrfrE9tqS8jXgt0mNJHdQ1RPn5ab_UtI06nV9d2AhvJxKirN8)
+
+[teatre magic sponges](https://mega.nz/folder/no8gjapT#orjfoSYMc3q0BS2cShRcHw)
+
+[Survival_Kit_by_SansMinds](https://cloud.mail.ru/public/KHJ1/nm8tXKcqT)
+
+[Ponta the Smith - Sick](https://mega.nz/?fbclid=IwAR3ZcevEy2GYzewffnAoEIxk-ilIaFJmovw0d0BXSQ6uotpd5XOFID_BKb8#!WskhDC5I!qyXYSiu00-HsgNxrJivmBBT1Xx0gBPjSA6An8bcVfzk)
+
+[The Marsupial Vanish by Kyle Purnel](https://mega.nz/file/a0ARDAhY#MwnMOfS1ZvvDi4LG0voNyyIk3nhJaRDHYPmZhjLEFus)
+
+[El Mundo Magico de Tamariz](https://mega.nz/file/mowECQLR#O_D7gqxIkZHWVe2ySHCXIVKavdt8H3QoMo5DGUWONWE)
+
+[A Study On Lennart Green by Takumi Takahashi](https://mega.nz/file/qPQTCC5Q#l8ThcuYs--2hnBS6-AXpmXYeVxyX3PyxaTTveryggrY)
+
 [Continnum by Jason Knowles](https://mega.nz/file/WwgyGACZ#OpOV36D7Bw4uHLaBWzc4DoNLx22L8PZqYNBuq63XKUo)
 
 [BulletProof Sleeving by Justin Miller](https://drive.google.com/file/d/1U_vZzFhTzWYLC9cxLy-L2oxnQRNovkFh/view)
@@ -10,8 +32,6 @@ Mi Repositorio de Trucos y Técnicas
 [The Vault - WING by Ade Rahmat ](https://mega.nz/file/u0YQBDqQ#4cFFrehIP6VXM2pdc5bedcrYMnNfc_FntlXl2oKNs5s)
 
 [Lock, Stock & Riot](https://cloud.mail.ru/public/HCes/nFg7vxKSq)
-
-[Gone Deck by Shin Lim](https://cloud.mail.ru/public/7XE8/yFDPhATh1)
 
 [A Study On Lennart Green by Takumi Takahashi](https://mega.nz/file/qPQTCC5Q#l8ThcuYs--2hnBS6-AXpmXYeVxyX3PyxaTTveryggrY)
 
@@ -46,6 +66,12 @@ Mi Repositorio de Trucos y Técnicas
 [Roman Garcia - El Falsificador](https://mega.nz/file/9Q0XnaiS#zeKK30zKzSHQIMpnlQDUHEkcC2uMkZ33HMeb2Gelsbs)
 
 [Daniel Madison - Mechanic V0l 1](https://mega.nz/file/d4AXXYbJ#wu5SeIda7cAS6y8elbarq2zKD_0zET_HcH1xb9I4U8o)
+
+[Shin Lim - 52 Shades of Red Vol 1](https://mega.nz/file/leg0yYZT#2qV99-PKV4k5TomCl6ReRGKZgfrXruLc60bql6RzgHE)
+
+[Flash Deck Switch by Shin Lim and Rich Piccone](https://mega.nz/file/SzByGCBJ#Ua79C5l1F_32xElFHfuj0ovwOVikWQmoAJyvZsgnUjM)
+
+[Gone Deck by Shin Lim](https://cloud.mail.ru/public/7XE8/yFDPhATh1)
 
 [Shin Lim y Daniel Madison](https://mega.nz/folder/ukQB0DYB#GuwCfQV1rkSL_1V687pCgA)
 
@@ -147,6 +173,8 @@ Mi Repositorio de Trucos y Técnicas
 [Alfredo Marchese - Magia para niños - Vol 1](https://mega.nz/file/XGBjjYTb#Ma_NNzy6duLRfL0TswWjZIul3hAlgR1za2RAiJxnD44)
 
 [18_TRUCOS CON OBJETOS COMO DOBLAR TENEDORES](https://mega.nz/file/1ctgGYoA#0f955nEVVZC5vXYq0wlV3ZhsFgDr6ohQDDv8X7tt3Ac)
+
+[At The Table Live by Dani+DaOrtiz 2](https://mega.nz/file/5bhyUaAJ#uKAtYJswK1W0pMSf0tXo_v4VwDrOigzsZlati7vrSjU)
 
 [7 Secrets by Dani DaOrtiz](https://mega.nz/file/uRl0BaLC#YiEHQ_b5v5d8Ra0hkRlb4LBaNVZvCSQ-wBY72BhCNMM)
 
