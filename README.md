@@ -3,7 +3,10 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguch]-->
 
+[Cortana By Felix Bodden. Video](https://v.youku.com/v_show/id_XMzA1MTU4ODc1Mg==.html)
+[Cortana By Felix Bodden. GIMMICK CONSTRUCTION REFERENCE GUIDE](https://mega.nz/folder/Dew1VAYQ#9PcrUZlqzFH90QHrVs_QxA)
 
+[Criss Angel Mindfreak vol 1, 2. 3, 4, 5, 7, 8](https://mega.nz/folder/uJtXwaJR#OcPXxDHqvs9AlZV-dfvfHg)
 
 [Rejoined](https://mega.nz/?fbclid=IwAR2Fq59kc-ZL6i3_J68Tw9w-e1xVZdE0Rgfd1Krygrw4__Sx1Z_smFjSNBQ#!gixxkIoC!4_yhQFbOEL8aA8L20SapLzG0lqiFzZLUPQzZAvOANHM)
 
