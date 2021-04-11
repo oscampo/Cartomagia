@@ -1,7 +1,29 @@
 # Cartomagia y Más
 Mi Repositorio de Trucos y Técnicas 
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
-[Oil and WHAT THE… | by Takeshi Taniguch]-->
+[Oil and WHAT THE… | by Takeshi Taniguchi]-->
+
+
+
+[Sharpie tutorial - SansMinds](https://mega.nz/file/mfpUFSjY#iNfh6C-453OxrnjnEe7q2wctfsuYztf0gIMDz9BoXjA)
+
+[3 Rutinas numismágicas por Luis Piedrahita](https://mega.nz/file/JoozGDjY#9U-mG6ZzAixRdHPAzHUVBJEVPWryyO31PgsWyw7W5pc)
+
+[Michel Huot - Penguin Live Online Lecture](http://www.mediafire.com/file/djgp5h8hbxj3kg0/Ekaterina+D.+-+At+the+Table+.mp4?fbclid=IwAR1SKFG6Le-QXjmgECp5Uyko585I3jnMEpmXGR3Pcq21q0IAGIR3JxSFtTk)
+
+[HAUNTED2](https://mega.nz/file/JMNkwIrb#2lL22BU3hSpEUvlwQSlHPnTjNEm51IE2TU2KRzFoThk)
+
+[Thumbtipedia](https://mega.nz/folder/M7JDCYTC#5eD7sT3iJb9-ujc_ZPLSlQ)
+
+[Hayashi Matrix trilogy](https://mega.nz/file/ZSZSDCYb#RMsATLXMtgu-rXuzOMuGn-O4FElSt1w3eo4Pk6k_97k)
+
+[Alex Pandrea - Over This World](https://mega.nz/file/1K5jXCRI#N2h32ZsqQm2lvetQNv44f_JGfIaS3hZKBQkkaoqmeSw)
+
+[Queen Amy Phone Effect by Alex Pandrea](https://mega.nz/folder/tEkEjIzI#IjlpuSdnhUQaCdJLbo9zYg)
+
+[WGM Linking Rings L&L Publishing original DVD](https://mega.nz/file/dKJ0XQoB#ohIiPwln_UN0Acxemsx8Ebcl7pu-7sWpuuIKizR-CLY)
+
+[Extract by Jason Yu and SansMinds](https://mega.nz/file/papCiIxb#W8y56U_19t5jiZw-6SLWoo2XMC_q1qepDGOoEMTB0pw)
 
 [Cortana By Felix Bodden. Video](https://v.youku.com/v_show/id_XMzA1MTU4ODc1Mg==.html)
 [Cortana By Felix Bodden. GIMMICK CONSTRUCTION REFERENCE GUIDE](https://mega.nz/folder/Dew1VAYQ#9PcrUZlqzFH90QHrVs_QxA)
