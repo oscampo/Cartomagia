@@ -3,7 +3,15 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguchi]-->
 
+[Manipulación con abanicos](https://mega.nz/folder/EBpU0IiB#-4wZz2R4vPRVGeLT0Qv7lg)
 
+[2020 Shikaku by Taryl](https://mega.nz/file/C24zVT7J#LA02PALsR63iRa9XcVcj41tgpw2Rw4LEgs8wOSyc92s)
+
+[Daniel Madison - Shin Lim](https://mega.nz/folder/ukQB0DYB#GuwCfQV1rkSL_1V687pCgA/file/CwIUALaK)
+
+[Adam Wilber & Peter McKinnon - How to do Miracle Card Tricks Vol 1-2](https://mega.nz/folder/UddFmYJK#lSCqOSiUe0lkOHZJ9gdF-Q)
+
+[Camera Tricks by Casshan Wallace](https://drive.google.com/file/d/1GrwpXCdf4TDMHSK4TVf0OQphunkCzrcZ/view)
 
 [Sharpie tutorial - SansMinds](https://mega.nz/file/mfpUFSjY#iNfh6C-453OxrnjnEe7q2wctfsuYztf0gIMDz9BoXjA)
 
