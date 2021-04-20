@@ -3,6 +3,8 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguchi]-->
 
+[Ernesto Melero - Card in Glass, Deck Switch, Impromptu Invisible Deck, Riffle Control, Two Card Transposition](https://mega.nz/folder/V3wxnQRL#0rGcGSCoXNjIAy07ckCpWQ)
+
 [Manipulación con abanicos](https://mega.nz/folder/EBpU0IiB#-4wZz2R4vPRVGeLT0Qv7lg)
 
 [2020 Shikaku by Taryl](https://mega.nz/file/C24zVT7J#LA02PALsR63iRa9XcVcj41tgpw2Rw4LEgs8wOSyc92s)
