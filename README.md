@@ -142,6 +142,8 @@ Mi Repositorio de Trucos y Técnicas
 
 [Libros Clásicos](https://mega.nz/folder/ukgyTDSK#ipO2B1aNVRfF81csyZcCSA)
 
+[Libros Varios](https://drive.google.com/drive/u/1/folders/0B56akX69zQEnfkowLWwzMjVyOGFYRjNoZVluRDVocUs1VVI0Um5kN0dPQTAxX1J5Yk9oU1U)
+
 [Aldo Colombini - Face-Off](https://mega.nz/file/lNxnkYQQ#qEFhc15uhIsRqfdeJ6chfeZ1rw1nxvxeJbGigyUvX6U)
 
 [Cinco Rutinas Cartomagicas By Gabi Pareras ](https://mega.nz/file/JZQTyAxL#oh8x6dhBrzG7G-NjivF5MDlcskqt17nXpYg1HAAzFh4)
