@@ -3,6 +3,10 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguchi]-->
 
+[Chaos by Mathieu Bich](https://cloud.mail.ru/public/9HK9/M7uRkqsZS)
+
+[LAIR MICHAEL CANDLES ! magia con Velas](https://u.pcloud.link/publink/show?code=XZIS32XZRY0WykYP8h8IqnA33C7SEuCqOr17)
+
 [Ernesto Melero - Card in Glass, Deck Switch, Impromptu Invisible Deck, Riffle Control, Two Card Transposition](https://mega.nz/folder/V3wxnQRL#0rGcGSCoXNjIAy07ckCpWQ)
 
 [Manipulación con abanicos](https://mega.nz/folder/EBpU0IiB#-4wZz2R4vPRVGeLT0Qv7lg)
