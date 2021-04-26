@@ -3,6 +3,8 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguchi]-->
 
+[ESPionage  by Charlie Frye](https://v.youku.com/v_show/id_XODExMzI3NDQ4.html)
+
 [Chaos by Mathieu Bich](https://cloud.mail.ru/public/9HK9/M7uRkqsZS)
 
 [LAIR MICHAEL CANDLES ! magia con Velas](https://u.pcloud.link/publink/show?code=XZIS32XZRY0WykYP8h8IqnA33C7SEuCqOr17)
