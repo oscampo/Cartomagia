@@ -3,6 +3,8 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguchi]-->
 
+[Yigal Mesika - Loops - password: NJF8KW](http://yigalmesika.com/loops)
+
 [ESPionage  by Charlie Frye](https://v.youku.com/v_show/id_XODExMzI3NDQ4.html)
 
 [Chaos by Mathieu Bich](https://cloud.mail.ru/public/9HK9/M7uRkqsZS)
