@@ -3,6 +3,14 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguchi]-->
 
+[U-Turn Rubberband](https://drive.google.com/file/d/10Gs3iarbrLxcKdkvmKx1-anoWw1ygNjK/view)
+
+[Triple Helix by Snake & John Byng](https://mega.nz/file/NYs02S4K#ydBZIaIo_InY1D6rcURXk61E8iUEfpz3iTXV3_CEUuU)
+
+[DOUBLE EXPOSURE Julio Ribera](https://drive.google.com/file/d/10GFTMk_CwDc-bZMpBJTZKvucu5tLZHTh/view?usp=sharing)
+
+[4th Dimension By Sergio Roca & Julio Ribera](https://mega.nz/folder/t4BxRCzT#OD6vG0gKJVdJe76Buj6biA)
+
 [Blow Change by Nguyen Quang Teo](https://drive.google.com/file/d/1rpksZS0t3gPqNk9eWOo87AJu73qL9yQt/view?usp=sharing)
 
 [Gravity by Miquel Roman](https://drive.google.com/file/d/1NQ_uYiBXtj5Ld6rY7teewOIlHfAHRZxf/view)
