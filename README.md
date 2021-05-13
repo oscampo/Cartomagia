@@ -445,7 +445,7 @@ Mi Repositorio de Trucos y Técnicas
 
 [Sky Vanish](https://drive.google.com/drive/folders/1PUyo2qTDGE1tugc8ri4dLOJgkTO45Ihc)
 
-[El Ninja de la Magia Completo](https://mega.nz/folder/cBwBWJgK#b7oE06ThRdyGID3tl5uFHw)
+[El Ninja de la Magia][1](https://mega.nz/#F!luhAUDwT!jqG7Mp0FJHUwimyeNeaqVw),[2](https://mega.nz/#F!U25imC7L!YvYRyFU0yo6seq9GcczbWg), [3](https://mega.nz/#F!93pkAQza!aJsmWoD-fMNTJ7WDR4AvaA), [4](https://mega.nz/#F!hy4lHCLR!iCWcP4uAV4zN9WXJ6W3J7g), [5](https://mega.nz/#F!J3IASTZa!wy9PV74Lc5xenaRVnLrA2w), [6](https://mega.nz/#F!dqBUSRiQ!O7DOkzi9sm7DAyVWVwzaMg), [7](https://mega.nz/#F!7x5WSRwJ!mbvY7_QHZ7kZ6OdU4srVHA), [8](https://mega.nz/#F!HYx0lAbB!QnoKMD5ngLG2P0sLJaXIpw), [9](https://mega.nz/#F!fNAHWYJK!LX15HiM1ZPUBQdDycFoZyg)
 
 [Continuum by Jason Knowles](https://mega.nz/file/WwgyGACZ#OpOV36D7Bw4uHLaBWzc4DoNLx22L8PZqYNBuq63XKUo)
 
