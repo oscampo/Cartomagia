@@ -3,6 +3,14 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguchi]-->
 
+[Gumart By Manu Llari](https://mega.nz/folder/RthHiQDZ#uF2ViBE79Nma6FCtQH60BA)
+
+[Sticky-note slide by Tyler Twombly](https://mega.nz/file/ihpkARoI#frrys3vH73KFzEnzGMzPETEEhtT8_5cUb1kvFL9JblU)
+
+[Boom by Fernando Mier](https://mega.nz/folder/MXoBjCRR#LcDQk3FzmIMD7lVatVYTIA)
+
+[Ruthguiller Dumont - Magia con cartas ](https://mega.nz/folder/FEMXUKxA#KmBLRxh-Kvge_5tGIUiJQg)
+
 [Jaehoon Lim - Color Change Dove Frame](https://mega.nz/file/Nuw1Sa5K#N34USJL2ZyjvxPD4OQ1EOKSUtW4BWBfk23lpv-ovKqY)
 
 [U-Turn Rubberband](https://drive.google.com/file/d/10Gs3iarbrLxcKdkvmKx1-anoWw1ygNjK/view)
