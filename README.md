@@ -3,6 +3,8 @@ Mi Repositorio de Trucos y Técnicas
 <!--No la quiero compartir: [The Surface Below by Giacomo Bigliardi](https://drive.google.com/file/d/1oQY7fPI_wgznVo_GKLtwa_ggwWGDyMYh/view) 
 [Oil and WHAT THE… | by Takeshi Taniguchi]-->
 
+[SHY 2.0 by Smagic Productions](https://mega.nz/file/GzJ0TYSC#dfXjXgGRssrIheLv5l0NN1XQFGizdjVacunJBLK48CY)
+
 [Gumart By Manu Llari](https://mega.nz/folder/RthHiQDZ#uF2ViBE79Nma6FCtQH60BA)
 
 [Sticky-note slide by Tyler Twombly](https://mega.nz/file/ihpkARoI#frrys3vH73KFzEnzGMzPETEEhtT8_5cUb1kvFL9JblU)
